@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @insikayakwazulu
 - 👀 I’m interested in digital marketing,machine learning and data science
-- 🌱 I’m currently learning computer engineering(BscEng) at a 3rd ranking institue(UKZN) in Africa...
 - 💞️ I’m looking to collaborate on any thing that has to do with my interests and magnetic levitation
 - 📫 How to reach me email(sphelelesfisokuhle@gmail.com)
 -    nothing much, im just another dude on an adventure...
